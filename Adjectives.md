@@ -1,0 +1,3 @@
+Dedicated
+Motivated
+Organized
